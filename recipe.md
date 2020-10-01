@@ -10,7 +10,7 @@ Grate the cheese on the bread slices covered with pizza sauce
 Step 4:
 Set the grill or oven
 
-Tip: After setting the heat on an oven, wait for 5 minutes for the pizza sand to be even better and cheesy
+Tip: After setting the heat on an oven, wait for 5 minutes for the pizza sandwich to be even better and cheesy
 
 Step 5 :
 Join the 2 bread slices such that all the sauce, cheese, etc are on the inside.
